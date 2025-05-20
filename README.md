@@ -1,1 +1,1 @@
-# blog
+# Nice Ideas by Omar Khattab!
